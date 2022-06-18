@@ -71,3 +71,11 @@ He will try to change the price.
 
 He will not take no for an answer. He will bully you and gaslight until you either give up or fire him.
 
+## RELATED BUSINESSES
+
+Jose Rodriguez may try to hire Hector and bring him to your home. Do not hire Jose either. Jose will present himself as a general contractor and arrive to your home in a van with a license number for [G G Construction](https://cslb.ca.gov/OnlineServices/CheckLicenseII/LicenseDetail.aspx?LicNum=849731). He is NOT LICENSED and is NOT A GENERAL contractor. G G Construction reports to have no employees. Only hire licensed professionals.
+
+Disclaimer: I have no knowledge if G G Construction allows Jose has any part in this misrepresentation. 
+
+
+
