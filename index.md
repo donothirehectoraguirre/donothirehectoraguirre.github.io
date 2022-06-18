@@ -1,54 +1,63 @@
 ## DON'T HIRE HECTOR
 
-This "tile guy" is nasty. He is a bully. He will overcharge. He will gaslight you. He is bi-polar. Be warned! **STAY AWAY!**
-
-
+Hector Aguirre is a "tile guy". **BE WARNED! STAY AWAY!**
 
 ```
 HECTOR AGUIRRE TILE
 487 SHASTA AVENUE
 MOORPARK, CA 93021
+DO NOT CALL! 1-805-320-8605
 ```
 
-DO NOT CALL THIS NUMBER!
+![Hector Aguirre Tile](/hector.png)
 
-1-805-320-8605
 
-### MY EXPERIENCE
+## MY EXPERIENCE
 
 Hector treated me so poorly that I created this website to warn others to avoid this man.
 
-After days of Hector's bullying, I asked him to leave my house and he refused. I told him I would call the police if he did not leave my house and started to record.
+After days of Hector's shoddy work and bullying, I asked him to leave my house and he refused. I told him I would call the police if he did not leave my house and started to record.
 
-<youtube_embed_here>
+<video src="video1.mp4" controls="controls" style="max-width: 730px;">
+</video>
 
-Hector is the kind of person that will demand money for incomplete and poorly done work.
+Hector is the kind of person that will demand money for incomplete and poorly done work before he will leave.
 
-<youtube_embed_here>
+<video src="video2.mp4" controls="controls" style="max-width: 730px;">
+</video>
 
-Hector will gaslight you and tell you are "making a big deal out of nothing" after refusing to leave your home.
+I continue to ask leave multiple times and he refused.
 
-<youtube_embed_here>
+<video src="video3.mp4" controls="controls" style="max-width: 730px;">
+</video>
 
-Hector is so dillusional that he called the police to "report me" for not wanting to pay him.
+Hector will try to gaslight you and tell you are "making a big deal out of nothing" after refusing to leave your home.
 
-<youtube_embed_here>
+<video src="video4.mp4" controls="controls" style="max-width: 730px;">
+</video>
 
-The police came to my house and removed this man from my property.
+Hector actually called the police to report me for not wanting to pay him after I allowed him to remove his tools from my house.
+
+<video src="video5.mp4" controls="controls" style="max-width: 730px;">
+</video>
+
+The police came to my house and removed him from the property.
 
 <youtube_embed_here>
 
 Hector left **literal** human feces at my home because he is a disgusting person.
 
-### UNLICENCSED
+## UNLICENCSED
 
 Hector works without a valid California Contractors license which is a misdemeanor.
+
+[![Hector Aguirre Tile](/license.png)](https://www.cslb.ca.gov/OnlineServices/checklicenseII/LicenseDetail.aspx?LicNum=643637)
 
 Learn from my mistake! Always (check the license)[https://www.cslb.ca.gov/onlineservices/checklicenseII/checklicense.aspx] and NEVER hire an unlicensed contractor! You will regret it like I do.
 
 Hector will give you a sob story about how he lost everything and drive to the job in a beat up 1987 Toyota truck. When he wants "his money" he will drive up with his wifey in a late model Lexus SUV. 
 
-### BAD BUSINESS
+## BAD BUSINESS
 
 Hector will quote you a low price and then the gaslighting will immediate start.
 
