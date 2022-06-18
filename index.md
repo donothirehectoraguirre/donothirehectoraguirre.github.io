@@ -1,37 +1,25 @@
-## Welcome to GitHub Pages
+## DON'T HIRE THIS MAN
 
-You can use the [editor on GitHub](https://github.com/donothirehectoraguirre/dotnethirehectoraguirre.github.io/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+Hector is nasty, gaslighting bully that will do a bad job and still try to overcharge you.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Do not pay this man cash! He will tell you he doesn't have a bank account and bring you receipts paid for with his visa card.
 
-### Markdown
+### Bully
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+Hector treate me so poorly that I asked him to leave and he refused. I told him I would call the police if he did not leave my house.
 
-```markdown
-Syntax highlighted code block
+See for yourself what type of person you are inviting into your home.
 
-# Header 1
-## Header 2
-### Header 3
+<youtube_embed_here>
 
-- Bulleted
-- List
+Hector is the kind of person that will demand money for incomplete and poorly done work.
 
-1. Numbered
-2. List
+<youtube_embed_here>
 
-**Bold** and _Italic_ and `Code` text
+Hector will gaslight you and tell you are "making a big deal out of nothing" after refusing to leave your home.
 
-[Link](url) and ![Image](src)
-```
+<youtube_embed_here>
 
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
+Hector will leave **literal** human feces at your home because he is an animal.
 
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/donothirehectoraguirre/dotnethirehectoraguirre.github.io/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+DO NOT HIRE HECTOR! HE DOES SLOPPY WORK! HE IS IS A BULLY!
