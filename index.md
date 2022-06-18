@@ -1,37 +1,81 @@
-## Welcome to GitHub Pages
+## DON'T HIRE HECTOR
 
-You can use the [editor on GitHub](https://github.com/donothirehectoraguirre/dotnethirehectoraguirre.github.io/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+Hector Aguirre is a "tile guy". **BE WARNED! STAY AWAY!**
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
+```
+HECTOR AGUIRRE TILE
+487 SHASTA AVENUE
+MOORPARK, CA 93021
+DO NOT CALL! 1-805-320-8605
 ```
 
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
+![Hector Aguirre Tile](/hector.png)
 
-### Jekyll Themes
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/donothirehectoraguirre/dotnethirehectoraguirre.github.io/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+## MY EXPERIENCE
 
-### Support or Contact
+Hector treated me so poorly that I created this website to warn others to avoid this man.
 
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+After days of Hector's shoddy work and bullying, I asked him to leave my house and he refused. I told him I would call the police if he did not leave my house and started to record.
+
+<video src="video1.mp4" controls="controls" style="max-width: 730px;">
+</video>
+
+Hector is the kind of person that will demand money for incomplete and poorly done work before he will leave.
+
+<video src="video2.mp4" controls="controls" style="max-width: 730px;">
+</video>
+
+I continue to ask leave multiple times and he refused.
+
+<video src="video3.mp4" controls="controls" style="max-width: 730px;">
+</video>
+
+Hector will try to gaslight you and tell you are "making a big deal out of nothing" after refusing to leave your home.
+
+<video src="video4.mp4" controls="controls" style="max-width: 730px;">
+</video>
+
+Hector actually called the police to report me for not wanting to pay him after I allowed him to remove his tools from my house.
+
+<video src="video5.mp4" controls="controls" style="max-width: 730px;">
+</video>
+
+The police came to my house and removed him from the property.
+
+<youtube_embed_here>
+
+Hector left **literal** human feces at my home because he is a disgusting person.
+
+## UNLICENCSED
+
+Hector works without a valid California Contractors license which is a misdemeanor.
+
+[![Hector Aguirre Tile](/license.png)](https://www.cslb.ca.gov/OnlineServices/checklicenseII/LicenseDetail.aspx?LicNum=643637)
+
+Learn from my mistake! Always (check the license)[https://www.cslb.ca.gov/onlineservices/checklicenseII/checklicense.aspx] and NEVER hire an unlicensed contractor! You will regret it like I do.
+
+Hector will give you a sob story about how he lost everything and drive to the job in a beat up 1987 Toyota truck. When he wants "his money" he will drive up with his wifey in a late model Lexus SUV. 
+
+## BAD BUSINESS
+
+Hector will quote you a low price and then the gaslighting will immediate start.
+
+Do not pay this man cash! He will tell you he doesn't have a bank account and bring you receipts paid for with his visa card.
+
+He will ask to increase the price.
+
+He won't pay for materials and will try to give you receipts.
+
+He will try to change the price.
+
+He will not take no for an answer. He will bully you and gaslight until you either give up or fire him.
+
+## RELATED BUSINESSES
+
+Jose Rodriguez may try to hire Hector and bring him to your home. Do not hire Jose either. Jose will present himself as a general contractor and arrive to your home in a van with a license number for [G G Construction](https://cslb.ca.gov/OnlineServices/CheckLicenseII/LicenseDetail.aspx?LicNum=849731). He is NOT LICENSED and is NOT A GENERAL contractor. G G Construction reports to have no employees. Only hire licensed professionals.
+
+Disclaimer: I have no knowledge if G G Construction allows Jose has any part in this misrepresentation. 
+
+
+
